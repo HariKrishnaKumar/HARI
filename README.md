@@ -1,2 +1,2 @@
 # HARI
-Further updat for this will be aviable
+Further updat for this will be available 
